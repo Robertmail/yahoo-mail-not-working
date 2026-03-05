@@ -4,8 +4,7 @@ Yahoo Mail is one of the most popular email services used by millions of people 
 
 If your Yahoo Mail is not working, there are several possible reasons behind the issue. Fortunately, most problems can be resolved with simple troubleshooting steps. This guide explains the common causes of Yahoo Mail issues and how to fix them quickly.
 
-**Click Here:**  
-[Yahoo Support](https://jivo.chat/KlZSRejpBm)  **or Call Us: +1-801-882-2810 USA**
+**Click Here:**  [Yahoo Support](https://jivo.chat/KlZSRejpBm)  **or Call Us: +1-801-882-2810 USA**
 
 # Common Reasons Why Yahoo Mail Is Not Working
 
